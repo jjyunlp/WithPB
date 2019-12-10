@@ -1,3 +1,3 @@
 # WithPB
 
-Pb is an SB.
+https://www.solidot.org/story?sid=62899
